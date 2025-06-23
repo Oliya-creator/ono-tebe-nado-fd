@@ -1,1 +1,1 @@
-https://github.com/Oliya-creator/ono-tebe-nado
+https://github.com/Oliya-creator/ono-tebe-nado-fd
